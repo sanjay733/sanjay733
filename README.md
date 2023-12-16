@@ -7,7 +7,6 @@
 
 - 📫 How to reach me **sanjaynevamind@gmail.com**
 
-- 📄 Know about me [https://drive.google.com/file/d/1nBomMusPNdA5uuqtkBqQGzHmHi24whrQ/view?usp=drive_link](https://drive.google.com/file/d/1nBomMusPNdA5uuqtkBqQGzHmHi24whrQ/view?usp=drive_link)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
